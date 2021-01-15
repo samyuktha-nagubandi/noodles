@@ -1,0 +1,1 @@
+Ingredients required are water, noodles, masala, little bit of salt, vegetables like carrot (optional).
